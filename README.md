@@ -1,0 +1,1 @@
+# roteiro_editorial_socialmedia
